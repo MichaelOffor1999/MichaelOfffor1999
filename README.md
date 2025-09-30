@@ -5,7 +5,8 @@ I'm a recent computer science graduate, passionate about software enginering and
 I strongly believe, theres a solution for everything.
 
 ## Check out what I'm up to 
-- LinkedIn: michael-offor-39997b247
+- LinkedIn: www.linkedin.com/in/michael-offor-39997b247
+
 
 
 ## Contact:
